@@ -6,7 +6,7 @@
 
 ## About
 
-[To be updated]
+[To be updated in August 2024]
 
 <h2>Project Lists</h2>
 
